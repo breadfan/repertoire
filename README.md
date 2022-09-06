@@ -14,7 +14,7 @@ Chords (That I could sing as well): <br>
 Кино - Война <br>
 Кино - Легенда <br>
 Кино - Каждую Ночь  <br>
-Кино - Это Не Люббовь  <br>
+Кино - Это Не Любовь  <br>
 Eels - I’m Going to Stop Pretending That I Didn’t Break Your Heart <br>
 Eels - I Need Some Sleep <br>
 Eels - Lone Wolf <br>
