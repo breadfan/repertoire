@@ -20,5 +20,5 @@ Eels - I Need Some Sleep <br>
 Eels - Lone Wolf <br>
 Кофе - Зеро <br>
 
-Tabs: 
-Metallica - Fade to Black
+Tabs:  <br>
+Metallica - Fade to Black  <br>
